@@ -1,3 +1,6 @@
+<img width="1457" height="971" alt="Screen" src="https://github.com/user-attachments/assets/b142d43b-4278-4fce-b364-f4184e8e314b" />
+
+
 # 🌊 MERGOHYDROX 🌊
 ### *L'Architettura Suprema per la Conservazione dell'Eredità Digitale*
 
